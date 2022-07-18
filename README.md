@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... Web Design
 - 🌱 I’m currently learning ... Frontend Development 
 - 💞️ I’m looking to collaborate on ... Creating a unique career path 
-- 📫 How to reach me ... DM on what'sapp " +201142062524 "
+- 📫 How to reach me ... DM on What's app " +201142062524 "
